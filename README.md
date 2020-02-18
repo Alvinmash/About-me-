@@ -6,7 +6,7 @@ my main purpose is to learn and adapt as . i venture out looking for different o
 
 
 
-# "FOR FUN"
+# for fun 
 (1)music(playing drums)
 
 (2)automotive knowledge 
